@@ -1,0 +1,11 @@
+- 👋 Olá, sou @EstefaniGatinha
+- 🦅 Eu sou Corinthiana
+- 😴 Gosto muito de dormir
+- 🍉 Eu gosto de comer
+- 🐦 Gosto muito de animais
+- 🎼 Gosto de escutar música
+- 🎥 Adoro assistir filmes e séries
+- 🌱 Amo cuidar da natureza
+- 🏖 Amo ir a praia
+- 🐟 Gosto de pescar
+- 🌙 Amo ver a lua e as estrelas a noite
